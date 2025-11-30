@@ -1,16 +1,16 @@
-## Hi there 👋
+## Hello! :3
 
-<!--
-**HeroHunterIguess/HeroHunterIguess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+idk how to write an introduction lmao
 
-Here are some ideas to get you started:
+Pronouns: she/her
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm usually working on some random little projects and games
+If im not working on something im probably trying to come up with ideas for something to work on
+
+Always learning more about computer science and general science
+
+If you need to reach me contact me on discord: herohunterr
+
+
+
+If youre on my page you should check out my pinned repo's they are kinda cool :3
