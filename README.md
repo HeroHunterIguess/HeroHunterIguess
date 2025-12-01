@@ -11,4 +11,4 @@ If you need to reach me contact me on discord: *herohunterr*
 
 
 
-**If youre on my page you should check out my pinned repo's they are kinda cool :3**
+**Also if you're on my page you should check out my pinned repo's they are kinda cool :3**
