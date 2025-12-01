@@ -9,8 +9,8 @@ If im not working on something im probably trying to come up with ideas for some
 
 Always learning more about computer science and general science
 
-If you need to reach me contact me on discord: herohunterr
+If you need to reach me contact me on discord: *herohunterr*
 
 
 
-If youre on my page you should check out my pinned repo's they are kinda cool :3
+**If youre on my page you should check out my pinned repo's they are kinda cool :3**
