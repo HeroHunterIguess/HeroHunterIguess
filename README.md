@@ -13,4 +13,4 @@ You can find any of my published games on my itch.io page:
 https://herohunterr.itch.io/
 
 
-**Also if you're on my page you should check out my pinned repo's they are kinda cool :3**
+**Also if you're on my page you should check out my pinned repos they're kinda cool :3**
