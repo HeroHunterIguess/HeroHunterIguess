@@ -1,7 +1,8 @@
 ## ✨ Hello! :3 ✨
-You can call me raylee !
 
 ~~idk how to write an introduction this might suck lmao~~
+
+You can call me raylee !
 
 I'm usually working on some random little projects and games
 If im not working on something im probably trying to come up with ideas for something to work on
