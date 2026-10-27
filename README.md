@@ -1,4 +1,4 @@
-## ✨ Hello! :3 ✨
+## ✨ Hello! ✨
 
 ~~idk how to write an introduction this might suck lmao~~
 
